@@ -1,4 +1,4 @@
-# Nurilla Mahamatov  
+# Nurilla Makhamatov  
 
 👋 Hello! Welcome to my GitHub profile!  
 
